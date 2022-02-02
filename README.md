@@ -1,2 +1,4 @@
 # sobre-mim
-repositorio que conta minha historia
+eu me chamo meu pipi no seu popo
+quero cursar sexologia
+meu signo é transariano
