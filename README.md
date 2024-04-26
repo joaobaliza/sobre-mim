@@ -1,4 +1,2 @@
 # sobre-mim
-eu me chamo meu pipi no seu popo
-quero cursar sexologia
-meu signo é transariano
+Olá, me chamo João Baliza e sonho em ser programador fullstack, tenho 20 anos e sou apaixonado pela área de TI, principalmente a área de dev <3!
